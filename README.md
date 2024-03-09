@@ -1,6 +1,7 @@
 # Dextools Alternatives & The Game-Changing
 
-![Uploading Adsız.png…]()
+![Adsız](https://github.com/sophiemarshall105/ThebotDevsRepo/assets/162816962/79eb2c17-b356-45f9-aeb1-eb663b8fe624)
+
 
 <img width="980" alt="dextoolstrendingbotimg" src="https://github.com/sophiemarshall105/ThebotDevsRepo/assets/162816962/37803aa7-7076-46fa-bdcf-44732e06a6f4">
 Navigating the Crypto Cosmos: A Comprehensive Guide to Dextools Alternatives & The Game-Changing 🌌
